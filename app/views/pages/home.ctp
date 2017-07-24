@@ -1,0 +1,1 @@
+Clique no link Fazer inscrição na barra lateral para preencher o formulário e gerar o boleto
